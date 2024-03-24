@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @akhiakgmr
 - 👀 I’m interested in playing esports
 - 🌱 I’m currently persuing diploma in Compute Science Engineering
-- 💞️ I’m looking to collaborate in a MNP
+- 💞️ I’m looking to collaborate in a MNC
 - 📫 How to reach me e-mail=goyalaakash13@gmail.com
 
 <!---
